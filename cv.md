@@ -1,7 +1,7 @@
 # Mikalai Stadub
 ---
 
-Phone number: +375291255317 (Telegram, Viber).
+Phone number: +375291255317 (Telegram, Viber)
 
 Email: [mikalaistadub@gmail.com](mikalaistadub@gmail.com)
 
